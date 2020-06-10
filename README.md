@@ -36,4 +36,8 @@ Me Showing a his skid version vs the fork normal version - http://prntscr.com/nw
 Skid Proof v2 - http://prntscr.com/nwa6r4
 I patch my issues with him and good friends with him but no hate or anything towards them like I said its just my opinion.
 
+Disclearing - Claims he can code but can't answer whats the difference between an abstract class or inferance (besides one is a class and one isn't) which isn't a valid answer.
+
+Disregarding my questions -> What's an object, hashmap, or protected.. lmaoooo 
+
 # If anyone on here wants to be removed from the skid list you can dm me personally @Inspect on telegram on Discord which is Inspect#7811
